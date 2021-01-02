@@ -1,2 +1,1 @@
-# Alucard Selfbot Official Page
- - Dev: ♡**xanthe**♡, fweak
+# NumberVix Selfbot (VixBot) Commands Page. #
